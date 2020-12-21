@@ -1,1 +1,0 @@
-# JosephWhittle.github.io
